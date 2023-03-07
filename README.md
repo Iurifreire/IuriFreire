@@ -1,4 +1,4 @@
-### Olá ! 👋 Me chami Iuri Freire 
+### Olá ! 👋 Me chamo Iuri Freire 
 
 
 
